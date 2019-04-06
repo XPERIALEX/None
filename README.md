@@ -1,1 +1,1 @@
-https://raw.githubusercontent.com/XPERIALEX/None/master/IMG_2.jpg
+https://raw.githubusercontent.com/XPERIALEX/None/master/IMG1.png
